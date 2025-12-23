@@ -24,4 +24,4 @@ We may update this Privacy Policy from time to time. Changes will be reflected o
 
 7. Contact Us
 If you have any questions about this Privacy Policy, you can contact us at:
-imdevang04@gmail.com
+micro.solve.solutions@gmail.com
